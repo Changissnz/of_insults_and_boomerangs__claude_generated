@@ -5,7 +5,7 @@ A fictionalized political analysis of the darkness underneath Western civility d
 
 The event focused on in this story occurred during the second quarter of the 21st century. A lot has already been written on the general political atmosphere of the West during this timespan. See stories such as [A fictional narration of specific cases associated with the American left-wing, during the second quarter of the 21st century](https://github.com/Changissnz/some_accounts_of_american_idiocy_during_the_second_quarter_of_the_21st__claude_generated), [A fictional commentary on the humanist trends underlying the 2nd quarter of the 21st century](https://github.com/Changissnz/second_quarter_of_the_21st__so_much_for_the_age_of_reason__claude_generated), and [A fictional synopsis of the populist politics of American President Crumbs, drawing in trends and events from other stories](https://github.com/Changissnz/what_populist_power_was_like_under_president_crumbs__claude_generated) for more.
 
-The American-Schinian trade wars that started under the rule of President Crumbs was one of the most consequential events nearing the end of the first quarter of the 21st century. It was also one of those events with ramifications not fully covered by the American corporatist media. And the underground American media, in that time period, focused on what it did best, most of which were not fit for full public view or knowledge.
+The American-Schinian trade wars that started under the rule of President Crumbs were one of the most consequential events nearing the end of the first quarter of the 21st century. It was also one of those events with ramifications not fully covered by the American corporatist media. And the underground American media, in that time period, focused on what it did best, most of which were not fit for full public view or knowledge.
 
 This event, along with a few other significant ones, really propelled the United States into a period of troubles.
 
@@ -23,4 +23,4 @@ The aim was to win. What occurred was organized violence.
 
 The "right to war" was the underlying sentiment that had to have required non-cooperation to take place on a much broader scale.
 
-And the initiatives to enact non-cooperation policies was because a lot of the cooperation that took place in the years leading up to the second quarter of the 21st was not favorable nor constructive for many individuals. So when these non-cooperation policies became more bearing in effect, those individuals simply did not care and sat out.
+And the initiatives to enact non-cooperation policies were because a lot of the cooperation that took place in the years leading up to the second quarter of the 21st was not favorable nor constructive for many individuals. So when these non-cooperation policies became more bearing in effect, those individuals simply did not care and sat out.
